@@ -1,0 +1,4 @@
+www.michelledanner.com-
+=======================
+
+Michelle Danner Acting Studio offers: * The Actor's Golden Box: With Michelle Danner * Audition for Film &amp; Television: On-Camera Cold Reading * Scene Study, Beginning/Intermediate/Advanced * Improv Workout * Casting Director Workshop * Voice intensives level 1 &amp; level 2 *Brad Garrett the Emmy Award winning star of Everybody Loves Raymond Teaching a sitcom/comedy intensive *3, 6 &amp; 12 month WELL ROUNDED ACTOR INTENSIVES AVAILABLE   DON’T MISS THE FREE INFORMATIONAL SESSION TO LEARN ABOUT ALL THE CLASSES &amp; MEET WITH MICHELLE DANNER  CALL (310)392-0815 OR E-MAIL INFO@EDGEMAR.ORG
